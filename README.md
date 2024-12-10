@@ -1,1 +1,3 @@
 # SmileHigh
+Welcome to my page where i will put Essays and written podcast scripts.
+Thank you for tuning in LOADING...
